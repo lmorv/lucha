@@ -1,3 +1,3 @@
 # lucha
 
-All luchaaxolotldor related stuff
+All luchaxolotldor related stuff
